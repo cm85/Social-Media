@@ -27,4 +27,3 @@
 			https://dl.dropboxusercontent.com/u/200015521/Social%20Icon%20Links/PirateBay.png" /></a>
 		<a href="http://occipital.com/user/0158-877115/carlo-moscatiello"><img src="
 			https://dl.dropboxusercontent.com/u/200015521/Social%20Icon%20Links/360%20Panorama.png" /></a>
-				
